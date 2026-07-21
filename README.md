@@ -1,1 +1,1 @@
-# skeptical-universal, script was made by aviax for education purposes only!
+# skeptical-universal, script was made by mochii for education purposes only!
